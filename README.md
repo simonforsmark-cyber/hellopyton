@@ -1,2 +1,3 @@
 # hellopyton
 tyuio
+Down Under" är en berättande pop/rock-låt där sångaren beskriver resor och möten både i Australien och utomlands. Låten blandar humor och stolthet över det australiska ursprunget med satiriska iakttagelser — såsom udda möten med människor och kulturskillnader. Refrängen hyllar Australien som "landet down under", med en varningston om stormar (metaforiskt) och en lättsam, festlig känsla. Låten innehåller också specifika, karaktäristiska bilder (t.ex. resande, en gammal bil, möten i städer) och en blandning av nostalgi och självironi.
